@@ -80,3 +80,5 @@ K2P主路由+N1旁路由设置 https://jahung.com/posts/20200809
 JOYSIDE太上头了 https://jahung.com/posts/20201228
 
 我去2021年 https://jahung.com/posts/20210219
+
+Spotify舒心用 https://jahung.com/posts/20240130
